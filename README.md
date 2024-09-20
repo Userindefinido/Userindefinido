@@ -1,4 +1,4 @@
-_*There are places I'll remember
+_*There are places I'll remember 
 All my life, though some have changed
 Some forever, not for better
 Some have gone and some remain*
@@ -21,4 +21,11 @@ In my life, I love you more*
 For people and things that went before
 I know I'll often stop and think about them
 In my life, I love you more
-In my life, I love you more...*
+In my life, I love you more...* 🤍🌻
+
+_Gosto de musica
+_Faço aniversário dia 26/09
+_amo artes, biologia e áreas humanas
+_eu diria que sou reflexiva
+_sou extrovertida
+_ minha MBTI é ESFP...
